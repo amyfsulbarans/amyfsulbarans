@@ -44,7 +44,7 @@ Exploration of engagement patterns across platforms.
 
 ## 📫 Contact
 
-- LinkedIn: https://linkedin.com/in/sulbaranamy
+- LinkedIn: https://linkedin.com/in/amysulbaran
 - Email: amyfsulbarans@gmail.com
 
 ---
